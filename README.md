@@ -1,0 +1,2 @@
+# JEE-Main-Application-Form-2020
+National Testing Agency (NTA) will release the JEE Main Application Form 2020. The form will be available only in online mode. Moreover, candidates who want to take the exam of Joint Entrance Exam Main 2020 need to fill this application form. As per the notification, the entrance exam will be conducted twice in a year. Therefore, the exam conducting body will also release an application form accordingly.
